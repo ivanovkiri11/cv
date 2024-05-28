@@ -4,10 +4,10 @@ Student
 
 Contact Information
 
-to be added...
+ki3888522@gmail.com
 
 Briefly about myself
 
-to be added
+18 y.o. 
 
 https://GITHUB-ivanovkiri11.github.io/cv/cv,

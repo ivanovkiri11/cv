@@ -10,4 +10,4 @@ Briefly about myself
 
 18 y.o. 
 
-https://GITHUB-ivanovkiri11.github.io/cv/cv,
+https://GITHUB-ivanovkiri11.github.io/cv/README.md,
